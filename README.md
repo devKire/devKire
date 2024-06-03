@@ -21,7 +21,7 @@ Vite
 
 #Contato
 📫 Email: erikdossantos2006@outlook.com
-💼 LinkedIn: [E](https://www.linkedin.com/in/erik-rafael-dos-santos-416b64251/?trk=opento_sprofile_details)
+💼 LinkedIn: [Erik Rafael dos Santos](https://www.linkedin.com/in/erik-rafael-dos-santos-416b64251/?trk=opento_sprofile_details)
 
 #Curiosidade
 ⚡ Fun fact: Além de codificar, adoro estudar e aprender novos assuntos.
