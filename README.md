@@ -1,4 +1,4 @@
-### 👋 𝓞𝓵á, 𝓮𝓾 𝓼𝓸𝓾 𝓔𝓻𝓲𝓴 𝓢𝓪𝓷𝓽𝓸𝓼 (@𝓭𝓮𝓿𝓚𝓲𝓻𝓮)
+### 👋 𝓞𝓵á, 𝓮𝓾 𝓼𝓸𝓾 𝓸 𝓔𝓻𝓲𝓴 𝓢𝓪𝓷𝓽𝓸𝓼 (@𝓭𝓮𝓿𝓚𝓲𝓻𝓮)
 
 <img align='center' src='https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExa21sOW5hZ3c2dG0wZHBpbHZuYzZjZ2pzdGNlemFld2d3ZzYwb2R4cCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3b5FC8Oqkvev6ZpDF9/giphy.webp' width='500'>
 
